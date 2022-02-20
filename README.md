@@ -1,0 +1,6 @@
+- Hi, I’m @Ifham_Ahmed_Khan 👋.
+- I’m interested in Coding and Gaming.
+- I’m currently learning new programming languages.
+- Studing BSCS in Muhammad Ali Jinnah University.
+- Email: ifham.khan907@gmail.com
+- Phone.no: 92-3161611907
